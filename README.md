@@ -1,0 +1,2 @@
+# postgraduate-D63
+Today is another day at work. Today I heard a word called "struggle force". Ha ha, I can't tell how I feel after hearing this word. I feel that the word sounds like a derogatory word, but I kind of want to be such a person. There is such a person in my dormitory. He wants to take the postgraduate entrance examination recently. I hope he can't pass the examination. Then I'm too happy, I don't know what can be added to my resume in this month and a half. When I work in a new environment, there are still people speaking Japanese behind me. I'm convinced
